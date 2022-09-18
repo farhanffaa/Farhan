@@ -35,3 +35,5 @@
 <a href="https://gitlab.com/onedailynewsnet">News and media</a>
 <a href="https://docs.google.com/forms/d/e/1FAIpQLSfq1-hB4VpDcNK3LPGd5RiX0UnosD14fW34bP1sdVntZdMCjw/viewform?usp=sf_link">News and media</a>
 <a href="https://express.adobe.com/page/N3OuuCxqpS4rQ/">News and media</a>
+<a href="https://onedailynews.net/how-to-get-tiktok-followers-free-fast-and-easy/">How To Get TikTok Followers</a>
+
