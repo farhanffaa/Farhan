@@ -36,4 +36,18 @@
 <a href="https://docs.google.com/forms/d/e/1FAIpQLSfq1-hB4VpDcNK3LPGd5RiX0UnosD14fW34bP1sdVntZdMCjw/viewform?usp=sf_link">News and media</a>
 <a href="https://express.adobe.com/page/N3OuuCxqpS4rQ/">News and media</a>
 <a href="https://onedailynews.net/how-to-get-tiktok-followers-free-fast-and-easy/">How To Get TikTok Followers</a>
-
+<a href="https://onedailynews.net/best-wordle-start-words-for-a-continued-winning-streak/">best wordle start words</a>
+<a href="https://onedailynews.net/what-is-mathler-best-wordle-alternative-a-must-play-game/">what is mathler</a>
+<a href="https://onedailynews.net/swordle-game-a-wordle-for-star-wars-fans/">what is swordle</a>
+<a href="https://onedailynews.net/what-is-heardle-wordle-with-songs/">what is heardle</a>
+<a href="https://onedailynews.net/who-is-lily-sastry-about-daughter-of-rowan-atkinson/">who is lily sastr</a>
+<a href="https://onedailynews.net/top-10-wwe-wrestlers-of-all-times/">Top 10 WWE Wrestlers of All Times</a>
+<a href="https://onedailynews.net/xxxtentacion-wiki-age-bio-and-everything-you-need-to-know/">Xxxtentacion</a>
+<a href="https://onedailynews.net/romeo-jon-bongiovi-wiki-age-and-bio/">Romeo Jon Bongiovi</a>
+<a href="https://onedailynews.net/steven-mark-mcfaddens-wiki-bio-age-height-and-everything/">Steven Mark McFadden</a>
+<a href="https://onedailynews.net/steven-mark-mcfaddens-wiki-bio-age-height-and-everything/">paula jones net worth</a>
+<a href="https://onedailynews.net/steven-mark-mcfaddens-wiki-bio-age-height-and-everything/">paula jones husband</a>
+<a href="https://onedailynews.net/13377x-and-13377x-to/">13377x</a>
+<a href="https://onedailynews.net/13377x-and-13377x-to/">13377x.to</a>
+<a href="https://onedailynews.net/gaur-gopal-das/">Gaur Gopal Das</a>
+<a href="https://onedailynews.net/icc-announce-new-cricket-rules-playing-conditions/">ICC New Cricket Rules</a>
