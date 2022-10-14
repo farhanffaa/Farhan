@@ -51,3 +51,6 @@
 <a href="https://onedailynews.net/13377x-and-13377x-to/">13377x.to</a>
 <a href="https://onedailynews.net/gaur-gopal-das/">Gaur Gopal Das</a>
 <a href="https://onedailynews.net/icc-announce-new-cricket-rules-playing-conditions/">ICC New Cricket Rules</a>
+<a href="https://fastguardservice.com/">fastguardservice</a>
+<a href="https://fastguardservice.com/">fastguardservice</a>
+
