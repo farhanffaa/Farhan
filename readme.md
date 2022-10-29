@@ -27,7 +27,7 @@
 <a href="https://github.com/farhanffaa">News and media</a>
 <a href="https://github.com/farhanffaa/Farhan/blob/main/readme.md">News and media</a>
 <a href="https://linktr.ee/farhanffaa">News and media</a>
-<a href="https://medium.com/@saabribibi/hanine-pronunciation-in-american-english-378a36d8f597">News and media</a>
+<a href="https://onebusinessnews.com/what-is-hanine-pronunciation-and-how-does-it-sound-in-english/">Hanine Pronunciation</a>
 <a href="https://www.geogebra.org/m/fmajvzfc">News and media</a>
 <a href="https://issuu.com/onedailynews">News and media</a>
 <a href="https://docs.google.com/forms/d/e/1FAIpQLSfq1-hB4VpDcNK3LPGd5RiX0UnosD14fW34bP1sdVntZdMCjw/viewform?usp=sf_link">News and media</a>
@@ -78,3 +78,4 @@ https://onebusinessnews.com/
 https://healthlelo.com/
 https://dailyathome.com/
 http://riseyourpet.com
+<a href="https://onebusinessnews.com/the-5-best-small-business-loans-in-california/">Small Business Loans In California</a>
