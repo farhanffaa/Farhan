@@ -526,3 +526,8 @@ https://www.frustrationfreedeals.com/
 https://movinginternet.co.uk/
 https://www.ellapaynecollection.com/
 https://www.rhfpakistan.com/
+
+https://onebusinessnews.com/pakistan-flood-2022-has-affected-30-million-people/
+https://onebusinessnews.com/zuri-craig-died-at-44-americas-got-talent-finalist-huge-tribute-from-the-fans/
+https://onebusinessnews.com/learn-these-skills-and-make-money-online-from-home/
+https://onebusinessnews.com/meet-sienna-mae-gomez-trending-tiktok-star-viral-with-body-positivity-videos/
