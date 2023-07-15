@@ -1,3 +1,4 @@
+https://dailytechportal.com/gadgets/what-happened-to-famous-hoo-haa-headphones-after-shark-tank/
 https://onebusinessnews.com/is-elliot-page-single-the-umbrella-academy-stars-love-life-explicitly-explored/
 https://onebusinessnews.com/who-is-erika-wulff-jones-conspiracy-theorist-alex-jones-wife-2/
 https://onebusinessnews.com/its-time-to-play-taylordle-swiftle-taylors-version-has-arrived-taylor-swift-wordle/
