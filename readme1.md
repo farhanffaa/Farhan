@@ -4,7 +4,7 @@ https://dailytechclub.com/
 https://saabry.com/
 https://IloveDaily.com
 https://dailyouts.com
-itsdailytimes.com/
+https://itsdailytimes.com/
 https://riseyourpet.com
 https://healthlelo.com
 https://DailyAthome.com
