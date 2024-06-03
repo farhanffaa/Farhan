@@ -1,6 +1,16 @@
 # Farhan
-[Code1
-](https://dailytechsolutions1.weebly.com/
+https://onebusinessnews.com/
+https://dailytechportal.com/
+https://dailytechclub.com/
+https://saabry.com/
+https://IloveDaily.com
+https://dailyouts.com
+https://itsdailytimes.com/
+https://riseyourpet.com
+https://healthlelo.com
+https://DailyAthome.com
+https://riseseoagency.com/
+https://dailytechsolutions1.weebly.com/
 https://dailytechsolutions2.weebly.com/
 https://dailytechsolutions3.weebly.com/
 https://dailytechsolutions4.weebly.com/
