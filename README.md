@@ -1,4 +1,6 @@
 # Farhan
+https://limitlesshost.net/
+https://zolvecare.ai
 https://onebusinessnews.com/
 https://dailytechportal.com/
 https://dailytechclub.com/
